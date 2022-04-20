@@ -1,1 +1,1 @@
-# Deveshs-typing-enhancer
+# Devesh's-typing-enhancer
